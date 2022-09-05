@@ -1,2 +1,1 @@
-# portafolio-gaston
-my personal portafolio💰
+# ▰My Portafolio▰
